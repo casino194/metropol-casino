@@ -1,4 +1,4 @@
-<h1 dir="ltr"><strong><strong>Casino metropol</strong></strong></h1>
+<h1 dir="ltr"><strong><strong>Casino metropol - Türkiye'de oynayın</strong></strong></h1>
 
 <p dir="ltr"><strong><a href="https://depo.media/fSMBrv/?subId2=trgit" style="text-decoration: none;"><u>Metropol Casino Oyna</u></a></strong></p>
 
